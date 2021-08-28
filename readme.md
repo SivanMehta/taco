@@ -53,7 +53,7 @@ We're not going to be gone long enough for the plants themselves to need care, t
 
 The fish should be relatively easy to take care of. The water level should be fine for the entirety of the time that we are gone, so no need to worry about that. Once a day, whether that is during Taco’s breakfast or dinner, just take a pinch of the “Micro Pellets” fish food and put it in the tank. You’ll be able to find the fish food on the top metal bin on the side of the left shelf (you’ll notice that there are some teeth marks that good ole Taco got into). The metal mesh on top of the tank is purely there as an anti-Taco deterrent. You can remove it while you're feeding the fish.
 
-The fishes' names are Shareef, Sinogue, Samantha, and Sally. Snaily also lives in the tank, he does not any care because he literally lives off the grime.
+The fishes' names are Shareef, Sinogue, Samantha, and Sally. Snaily also lives in the tank, he does need not any care because he literally lives off the grime.
 
 ## Cleaning
 
