@@ -15,7 +15,7 @@ This guide is a lot longer than it probably needs to be. But I like to ramble, s
 
 ## Feeding
 
-![](food-bowls.png)
+![](food-bowls.png "definetely mr. steal yo girl")
 
 We feed him Fancy Feast cans for all meals, and give him treats whenever we (attempt to) teach him tricks. We also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave if your schedule conflicts.
 
@@ -37,7 +37,7 @@ A good rule of thumb is that he _loves_ chasing things that hide. For example: t
 
 Taco is an indoor cat, so as much as he may try, don't let him escape out the front door. He will often greet us at the door and immediately try to go out the door so just be wary whenever you're coming in. He is allowed on the porch and the ledge there.
 
-![](taco-on-the-perch.png)
+![](taco-on-the-perch.png "'munch munch munch' - Taco like every day")
 
 We usually leave the porch door open whenever we're here. Since we're not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from. 
 
@@ -57,7 +57,7 @@ The fishes' names are Shareef, Sinogue, Samantha, and Sally. Snaily also lives i
 
 ## Cleaning
 
-![](litterbox.png)
+![](litterbox.png "pretty shitty right?")
 
 His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while we're gone, all you need to do is scoop it. There is a bin next to the litterbox where we dump his use litter. The typical routine that we use is scoop --> vacuum any bits that have fallen --> febreze. We scoop once a day. 
 
