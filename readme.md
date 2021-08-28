@@ -1,4 +1,4 @@
-# Taking care of Taco
+# Taking care of Taco (and friends)
 
 ![](taco.png)
 
