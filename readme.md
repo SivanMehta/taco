@@ -1,6 +1,6 @@
 # Taking care of Taco (and friends)
 
-![](taco.png)
+![](taco.png "definetely mr. steal yo girl")
 
 ## Important tidbits
 
@@ -9,20 +9,19 @@
 - Greenwood Animal Hospital:
   - 206-528-3838
   - 10000 Aurora Ave. N, Unit # 8, Seattle, WA 98133
-  - it's across the street
+  - it's across the street from our apartment
 
 This guide is a lot longer than it probably needs to be. But I like to ramble, so please humor me.
 
 ## Feeding
 
-![](food-bowls.png "definetely mr. steal yo girl")
+![](food-bowls.png)
 
 We feed him Fancy Feast cans for all meals, and give him treats whenever we (attempt to) teach him tricks. We also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave if your schedule conflicts.
 
 - Breakfast: 1 can of Fancy Feast @ ~8:30am
-- Dinner: 1 can @ ~6:30
+- Dinner: 1 can @ ~6:30pm
   - *All of these times can be + or - an hour to better fit your schedule*
-  - *Lunch is also a nice-to-have, he'll be fine without it if you can't make it*
 
 The Fancy Feast that he eats is readily available at most grocery stores in the pet section. The closest place to get it is at  the Fred Meyer on 85th and 1st. His food should already be plentifully stocked on the bottom left pantry shelf in boxes. If we miscalculated and didn't leave enough, please get more and Venmo us in the cost (@Sivan-Mehta).
 
@@ -47,12 +46,6 @@ The fish tank is also obviously off limits. Fish are friends, not food.
 ### Plants
 
 We're not going to be gone long enough for the plants themselves to need care, the only thing we need from you is not let Taco chew on them. He doesn't have a history of doing so, but discouraging him with a spray bottle has worked.
-
-### Fish Tank
-
-The fish should be relatively easy to take care of. The water level should be fine for the entirety of the time that we are gone, so no need to worry about that. Once a day, whether that is during Taco’s breakfast or dinner, just take a pinch of the “Micro Pellets” fish food and put it in the tank. You’ll be able to find the fish food on the top metal bin on the side of the left shelf (you’ll notice that there are some teeth marks that good ole Taco got into). The metal mesh on top of the tank is purely there as an anti-Taco deterrent. You can remove it while you're feeding the fish.
-
-The fishes' names are Shareef, Sinogue, Samantha, and Sally. Snaily also lives in the tank, he does need not any care because he literally lives off the grime.
 
 ## Cleaning
 
