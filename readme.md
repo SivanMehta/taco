@@ -20,7 +20,6 @@ This guide is a lot longer than it probably needs to be. But I like to ramble, s
 We feed him Fancy Feast cans for all meals, and give him treats whenever we (attempt to) teach him tricks. We also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave if your schedule conflicts.
 
 - Breakfast: 1 can of Fancy Feast @ ~8:30am
-- Lunch: 1/2 can @ ~12:30
 - Dinner: 1 can @ ~6:30
   - *All of these times can be + or - an hour to better fit your schedule*
   - *Lunch is also a nice-to-have, he'll be fine without it if you can't make it*
