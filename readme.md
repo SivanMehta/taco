@@ -1,4 +1,4 @@
-# Taking care of Taco (and friends)
+# Taking care of Taco
 
 ![](taco.png "definetely mr. steal yo girl")
 
