@@ -27,6 +27,8 @@ The Fancy Feast that he eats is readily available at most grocery stores in the 
 
 ## Stimulation
 
+![](lol.png)
+
 Cats are very good at occupying themselves, but they are still social. You don't need to do a whole lot except spend time with him. Try to spend at least an hour total with him. This can accompany meal times, or whenever you're in the neighborhood. If you want to play with him, his favorite toys are the laser pointer and the lure.
 
 A good rule of thumb is that he _loves_ chasing things that hide. For example: the lure isn't interesting if it's dangling in front of face. The lure _is_ interesting if it flits back and forth around corners.
