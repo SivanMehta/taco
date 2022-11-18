@@ -40,13 +40,9 @@ Taco is an indoor cat, so as much as he may try, don't let him escape out the fr
 
 ![](taco-on-the-perch.png "Apex Predator")
 
-We usually leave the porch door open whenever we're here. Since we're not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from. 
+If it's warm enough, we usually leave the porch door open whenever we're here. Since we're not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from. If it's cold out, he'll sit by the door and audibly ask to go out.
 
 We also do not let Taco on the counters. Our rule of thumb is that wherever food is prepared or ate, he should not go. This includes kitchen counters, fridge, and the metal rack / pantry. If we makes his way up there, give him a spritz with a spray bottle. If a spray bottle isn't handy, you can also just push him off the table.
-
-### Plants
-
-We're not going to be gone long enough for the plants themselves to need care, the only thing we need from you is not let Taco chew on them. He doesn't have a history of doing so, but discouraging him with a spray bottle has worked.
 
 ## Cleaning
 
@@ -54,4 +50,4 @@ We're not going to be gone long enough for the plants themselves to need care, t
 
 His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while we're gone, all you need to do is scoop it. There is a bin next to the litterbox where we dump his use litter. The typical routine that we use is scoop --> vacuum any bits that have fallen --> febreze. We scoop once a day. 
 
-You don't need to brush him, as all cats meticulously groom themselves. We already brush him 2-3 times a week, so he should be fine without it until we get back. However he does really like getting brushed so if you want to, go for it.
+You don't need to brush him, as all cats meticulously groom themselves. We already brush him 2-3 times a week, so he should be fine without it until we get back. However he does *really* like getting brushed so if you want to, go for it.
