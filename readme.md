@@ -1,3 +1,6 @@
+<meta property="og:title" content="Taco cat" />
+<meta property="og:image" content="https://raw.githubusercontent.com/SivanMehta/taco/main/taco.png" />
+
 # Taking care of Taco
 
 ![](taco.png "definetely mr. steal yo girl")
