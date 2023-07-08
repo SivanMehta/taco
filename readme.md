@@ -1,4 +1,4 @@
-<meta property="og:title" content="Taco cat" />
+<meta property="og:title" content="Taking care of Taco" />
 <meta property="og:image" content="https://raw.githubusercontent.com/SivanMehta/taco/main/taco.png" />
 
 # Taking care of Taco
