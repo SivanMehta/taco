@@ -2,7 +2,7 @@
 
 ![](food-bowls.png)
 
-I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave (or your heart) if your schedule conflicts.
+I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the left bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave (or your heart) if your schedule conflicts.
 
 - Breakfast: 1/2 can of Fancy Feast @ ~8:30am
 - Dinner: 1/2 can @ ~6:30pm
@@ -17,6 +17,10 @@ The Fancy Feast that he eats is readily available at most grocery stores in the 
 Cats are very good at occupying themselves, but they are still social. You don't need to do a whole lot except spend time with him. This can accompany meal times, or whenever you're in the neighborhood. If you want to play with him, his favorite toys are the laser pointer and the lure. A good rule of thumb is that he _loves_ chasing things that hide. For example: the lure isn't interesting if it's dangling in front of face. The lure _is_ interesting if it flits back and forth around corners. There are also approximately 85 million videos online on "how to play with a cat" if you're in need of inspiration. 
 
 Additionally, he loves climbing through tight spaces. I often will find him hiding under the bed, on the top shelf of a closet, burrowed into a pile of clothes, or rooting around in the latest box that has been brought into the house. I will also provide a few toys for you to use, the massage gun is a new addition that he's surprisingly quite taken with.
+
+If you're cooking, he will start meowing at you to give him food. He's not hungry, he just wants to be involved. 99% of the time, he just wants a sniff of what you're working with, and he'll leave you alone once he realizes its something he hates (which is 99% of things). If you want to actually give him something to snack on, the general rule is that he can _only_ have unseasoned, cooked meat. Cats are allergic to large amount of spices and seasonings, so please don't give him anything that's been seasoned. This includes _any_ dairy, as he's lactose intolerant.
+
+Alternatively, you can discourage this behavior by letting him sniff something that he HATES. These include garlic, citrus, and onions.
 
 ### Boundaries
 

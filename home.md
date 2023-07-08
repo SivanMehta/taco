@@ -2,7 +2,7 @@
 
 ![](food-bowls.png)
 
-I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave (or your heart) if your schedule conflicts.
+I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the left bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave (or your heart) if your schedule conflicts.
 
 - Breakfast: 1/2 can of Fancy Feast @ ~8:30am
 - Dinner: 1/2 can @ ~6:30pm
@@ -34,6 +34,6 @@ We're not going to be gone long enough for the plants themselves to need care, t
 
 ![](litterbox.png "pretty shitty right?")
 
-His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while we're gone, all you need to do is scoop it. There is a bin next to the litterbox where we dump his use litter. The typical routine that we use is scoop --> vacuum any bits that have fallen --> febreze. We scoop once a day. 
+His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while we're gone, all you need to do is scoop it. There is a bin next to the litterbox where we dump his use litter. The typical routine that we use is scoop --> vacuum any bits that have fallen --> febreze. I scoop once a day. Scooping also provides you with a good opportunity to check on his health. If you notice that he's not using the litter box, or that he's using anything else as a bathroom, please let me know ASAP.
 
-You don't need to brush him, as all cats meticulously groom themselves. We already brush him 2-3 times a week, so he should be fine without it until we get back. However he does really like getting brushed so if you want to, go for it.
+You don't need to brush him, as all cats meticulously groom themselves. I already brush him 2-3 times a week, so he should be fine without it until we get back. However he does really like getting brushed so if you want to, go for it.
