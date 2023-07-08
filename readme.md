@@ -18,5 +18,5 @@ These guides are probably longer than they needs to be. But I like to ramble, so
 
 There are 2 versions of this guide, they largely cover the same information, but differ slightly given where you're taking care of him:
 
-- [Home](home.md): If you're taking care of him at my apartment
-- [Away](away.md): If you're taking care of him at your place
+- [Home](./home.md) - If you're taking care of him at my apartment.
+- [Away](./away.md) - If you're taking care of him at your place.

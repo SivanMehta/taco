@@ -4,9 +4,9 @@
 
 I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the right bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave (or your heart) if your schedule conflicts.
 
-- Breakfast: 1 can of Fancy Feast @ ~8:30am
-- Dinner: 1 can @ ~6:30pm
-  - *All of these times can be + or - a few hours to better fit your schedule*
+- Breakfast: 1/2 can of Fancy Feast @ ~8:30am
+- Dinner: 1/2 can @ ~6:30pm
+  - *Both of these times can be + or - a few hours to better fit your schedule*
 
 The Fancy Feast that he eats is readily available at most grocery stores in the pet section. The closest place to get it is at the Fred Meyer on 85th and 1st. His food should already be plentifully stocked on the bottom left pantry shelf in boxes. If I miscalculated and didn't leave enough, please get more and Venmo me in the cost (@Sivan-Mehta).
 
@@ -24,13 +24,9 @@ Taco is an indoor cat, so as much as he may try, don't let him escape out the fr
 
 ![](taco-on-the-perch.png "'munch munch munch' - Taco like every day")
 
-We usually leave the porch door open whenever we're here. Since we're not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from. 
+I usually leave the porch door open whenever I'm here. Since I'm not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from.
 
-We also do not let Taco on the counters. Our rule of thumb is that wherever food is prepared or ate, he should not go. This includes kitchen counters, fridge, and the metal rack / pantry. If we makes his way up there, give him a spritz with a spray bottle. If a spray bottle isn't handy, you can also just push him off the table.
-
-The fish tank is also obviously off limits. Fish are friends, not food.
-
-### Plants
+I also do not let Taco on the counters. The rule of thumb is that wherever food is prepared or ate, he should not go. This includes kitchen counters, fridge, and the metal rack / pantry.
 
 We're not going to be gone long enough for the plants themselves to need care, the only thing we need from you is not let Taco chew on them. He doesn't have a history of doing so, but discouraging him with a spray bottle has worked.
 
