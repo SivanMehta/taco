@@ -34,6 +34,6 @@ Scratching is an innate behavior to cats and is a way for them to mark their ter
 
 ## Odds and Ends
 
-Tacocat is a very clean cat, and will meticulously groom himself. throughout the day. I'll provide you with a litterbox and a few weeks worth of litter. General rule of thumb is to *always* have the litter box available for him to use. Scooping the litter box is a daily chore, and I'll provide you with a scooper. Scooping also provides you with a good opportunity to check on his health. If you notice that he's not using the litter box, or that he's using anything else as a bathroom, please let me know ASAP.
+Taco is a very clean cat, and will meticulously groom himself. throughout the day. I'll provide you with a litterbox and a few weeks worth of litter. General rule of thumb is to *always* have the litter box available for him to use. Scooping the litter box is a daily chore, and I'll provide you with a scooper. Scooping also provides you with a good opportunity to check on his health. If you notice that he's not using the litter box, or that he's using anything else as a bathroom, please let me know ASAP.
 
 As a cat, he's an [extremely sleepy boi](https://www.youtube.com/shorts/syQCUC0mva8) and will sleep upwards of 16+ hours a day if you let him. During the day, he has an uncanny ability to find the sunniest spot in the apartment and just conk out. At night, he may even try sleep on the bed with you, aiming mostly to curl up on your torso. If you're not a fan of this, you can gently move him off of you, and he'll find a new spot to sleep.

@@ -14,7 +14,7 @@
   - (206) 466-3685
   - 2215 E Madison St, Seattle, WA 98112
 
-These guides are probably longer than they needs to be. But I like to ramble, so please humor me.
+These guides are probably longer than they need to be. I like to ramble; please humor me.
 
 ## Versions
 
