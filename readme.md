@@ -10,16 +10,15 @@
 - Sivan: 914-584-5975
   - don't hesitate to call or text me if you have any questions
   - *also don't hesitate to call or text me to send me pictures of Taco*
-- Greenwood Animal Hospital:
-  - 206-528-3838
-  - 10000 Aurora Ave. N, Unit # 8, Seattle, WA 98133
-  - it's across the street from my apartment
+- Madison Street Animal Hospital:
+  - (206) 466-3685
+  - 2215 E Madison St, Seattle, WA 98112
 
 These guides are probably longer than they needs to be. But I like to ramble, so please humor me.
 
 ## Versions
 
-There are 2 versions of this guide, they largely cover the same information, but differ slightly given where you're taking care of him:
+There are 2 versions of this guide, they largely cover the same information, but differ slightly given _where_ you're taking care of him:
 
 - [Home](./home.md) - If you're taking care of him at my apartment.
 - [Away](./away.md) - If you're taking care of him at your place.

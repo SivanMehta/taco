@@ -20,20 +20,20 @@ A good rule of thumb is that he _loves_ chasing things that hide. For example: t
 
 ### Boundaries
 
-Taco is an indoor cat, so as much as he may try, don't let him escape out the front door. He will often greet us at the door and immediately try to go out the door so just be wary whenever you're coming in. He is allowed on the porch and the ledge there.
+Taco is an indoor cat, so as much as he may try, don't let him escape out the front door. He will often greet me at the door and immediately try to go out the door so just be wary whenever you're coming in.
 
-![](taco-on-the-perch.png "'munch munch munch' - Taco like every day")
+![](taco-in-the-yard.png "'everything the light touches is my kingdom' - Taco")
 
-I usually leave the porch door open whenever I'm here. Since I'm not going to be here, please have the porch door closed. Feel free to let him out whenever you are here. He doesn't need to be monitored out there since the porch is too high for him to jump from.
+He is allowed outside, but ***ONLY*** under supervision. He has not learned any skills that would keep him safe in a life outside. If you're hanging out in the yard with him, be aware when he gets close to the fences, as he can easily hop over the fence.
 
-I also do not let Taco on the counters. The rule of thumb is that wherever food is prepared or ate, he should not go. This includes kitchen counters, fridge, and the metal rack / pantry.
+I'm not going to be gone long enough for the plants themselves to need care, the only thing I need from you is not let Taco chew on them. He doesn't have a history of doing so, only ever occasionally rubbing up against them.
 
-We're not going to be gone long enough for the plants themselves to need care, the only thing we need from you is not let Taco chew on them. He doesn't have a history of doing so, but discouraging him with a spray bottle has worked.
+Scratching is an innate behavior to cats and is a way for them to mark their territory. All of my furniture was bought with the intent of tolerating him scratching it, so don't worry about him destroying anything he shouldn't.
 
 ## Cleaning
 
 ![](litterbox.png "pretty shitty right?")
 
-His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while we're gone, all you need to do is scoop it. There is a bin next to the litterbox where we dump his use litter. The typical routine that we use is scoop --> vacuum any bits that have fallen --> febreze. I scoop once a day. Scooping also provides you with a good opportunity to check on his health. If you notice that he's not using the litter box, or that he's using anything else as a bathroom, please let me know ASAP.
+His litterbox is located in the guest bathroom, the scooper is under the sink. There will be more than enough litter in the box that you do not need to refill it while I'm gone, all you need to do is scoop it. There is a bin next to the litterbox where I dump his use litter. The typical routine that I use is scoop --> vacuum any bits that have fallen --> febreze. I scoop once a day. Scooping also provides you with a good opportunity to check on his health. If you notice that he's not using the litter box, or that he's using anything else as a bathroom, please let me know ASAP.
 
-You don't need to brush him, as all cats meticulously groom themselves. I already brush him 2-3 times a week, so he should be fine without it until we get back. However he does really like getting brushed so if you want to, go for it.
+You don't need to brush him, as all cats meticulously groom themselves. I already brush him 2-3 times a week, so he should be fine without it until I get back. However he does really like getting brushed so if you want to, go for it.
