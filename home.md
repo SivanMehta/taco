@@ -11,7 +11,7 @@ I feed him Fancy Feast cans for all meals, and occasionally give him treats when
 
 I usually clean both bowls by hand before breakfast.
 
-The food that that he eats is readily available at most grocery stores in the pet section. The closest place to get it is at the Fred Meyer on 85th and 1st. His food should already be plentifully stocked on the bottom right of the office closet. If I miscalculated and didn't leave enough, please get more and Venmo me in the cost (@Sivan-Mehta).
+The food that that he eats is readily available at most grocery stores in the pet section. The closest place to get it is at the Fred Meyer on 85th and 1st. His food should already be plentifully stocked on the bottom right of the office closet. After breakfast, I typically leave the half-empty can in office closet, so he cannot overeat in the morning. If I miscalculated and didn't leave enough, please get more and Venmo me in the cost (@Sivan-Mehta).
 
 His water fountain will be topped off, you don't need to refill it, but you should check it every day to make sure it's still working. If it stops working, please let me know ASAP. He will drink from a bowl if the fountain is broken, but he prefers the fountain.
 
