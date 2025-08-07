@@ -4,7 +4,8 @@
 
 I feed him Fancy Feast cans for all meals, and occasionally give him treats whenever I (attempt to) teach him tricks. I also keep dry food in the left bowl mostly topped off so he can graze whenever he is feeling peckish. If you're hanging out with him in the hour or two before he gets fed, he WILL start meowing at you to feed him. If you can, feed him on time, but it's ok to cave if your schedule (or your heart) conflicts.
 
-- Breakfast: 1/2 can @ ~8:30 am
+- Breakfast: 1/2 can @ ~8:30 am + 1 scoop of the dry food 
+  - This can alternatively be whenever you get up in the morning. Taco is annoyingly astute, so he will start meowing at you as soon as he realizes you're awake.
 - Dinner: 1/2 can @ ~6:30 pm
   - *All of these times can be + or - a few hours to better fit your schedule*
 

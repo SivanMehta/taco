@@ -1,9 +1,9 @@
 <meta property="og:title" content="Taking care of Taco" />
-<meta property="og:image" content="https://raw.githubusercontent.com/SivanMehta/taco/main/taco.png" />
+<meta property="og:image" content="https://raw.githubusercontent.com/SivanMehta/taco/main/taco.jpeg" />
 
 # Taking care of Taco
 
-![](taco.png "definetely mr. steal yo girl")
+![](taco.jpeg "definetely mr. steal yo girl")
 
 ## Important tidbits
 
